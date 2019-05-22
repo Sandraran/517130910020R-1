@@ -1,2 +1,3 @@
-# Rcourse_SJTU
-To share materials of my course "Programming for Social Sciences" in Shanghai Jiao Tong university
+Ñ§ºÅ£º517130910020
+ĞÕÃû£ºÊ¯Ååìõ
+
